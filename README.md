@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/be3df7c1-ba95-4406-9313-7d5d98057757)```
+```
 Date : 04.09.2024
 Name : Rajalakshmi R
 Register Number : 212223110037
